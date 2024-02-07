@@ -10,7 +10,13 @@
                                                         𝑫𝑵𝑪 ( 𝑫𝑶 𝑵𝑶𝑻 𝑪𝑶𝑷𝒀) 𝑴𝒚 𝒔𝒌𝒊𝒏𝒔 𝒊𝒏 𝒑𝒐𝒏𝒚𝒕𝒐𝒘𝒏! 
                                                   ☆★☆★☆★☆☆★☆★☆★☆☆★☆★☆★☆☆★☆★☆★☆☆★☆★☆★☆☆★
                       𝑨𝒏𝒅 𝒂𝒍𝒔𝒐, 𝒅𝒐𝒏'𝒕 𝒕𝒂𝒌𝒆 𝒊𝒏𝒔𝒑𝒐 𝒇𝒓𝒐𝒎 𝒎𝒚 𝒔𝒌𝒊𝒏 𝒘𝒊𝒕𝒉𝒐𝒖𝒕 𝒑𝒆𝒓𝒎𝒊𝒔𝒔𝒊𝒐𝒏 (𝒑𝒍𝒆𝒂𝒔𝒆 𝒋𝒖𝒔𝒕 𝒕𝒆𝒍𝒍 𝒎𝒆 𝒊𝒇 𝒚𝒐𝒖 𝒘𝒂𝒏𝒕 𝒕𝒐 𝒕𝒂𝒌𝒆 𝒊𝒏𝒔𝒑𝒐 𝑰 𝒘𝒐𝒏𝒕 𝒃𝒆 𝒎𝒆𝒂𝒏）
-![image](https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/e830b02e-998c-4f43-9347-90af06cf14c4)
-                      
-
-                      
+  ![image](https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/e830b02e-998c-4f43-9347-90af06cf14c4)
+                                                               ˗ˏˋ ꒰ ♡ ꒱ ˎˊ˗
+                                                             Facts about me toohoo >_<
+                                                  I like lemons thats why my name is Lemoni (that is very obv)
+                                                               Me is very like blue :3
+                                The fandoms I am in are: Project sekai/genshin impact/trolls/cookie run kingdom/ total drama
+                                                               🌊✮ ⋆ 🦈｡ * ⋆｡
+                                                             Thats all for now!
+                                              ▬▬ι═══════ﺤ▬▬ι═══════ﺤ▬▬ι═══════ﺤ▬▬ι═══════ﺤ▬▬ι═══════ﺤ
+                                         If you did read my github proflile Whisper me "🧸" if you want ^_^
