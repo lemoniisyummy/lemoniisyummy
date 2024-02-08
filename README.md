@@ -1,5 +1,5 @@
 <p align="center">˚₊‧꒰ა ☆ ໒꒱ ‧₊˚
- <p align="center"> ![image](https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/090a898f-e2ee-4d8f-9b70-42d5cd6d7af3)
+ </p align="center"> ![image](https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/090a898f-e2ee-4d8f-9b70-42d5cd6d7af3)
                                                               
 
 <p align="center"> ───── ⋆⋅☆⋅⋆ ─────
