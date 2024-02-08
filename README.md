@@ -1,5 +1,7 @@
 <p align="center">˚₊‧꒰ა ☆ ໒꒱ ‧₊˚
- <p align="center">![image](https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/0e3fd687-99a1-44a8-9e12-4fecff07f52c)
+<p align="center"> <img width="115" src=alt =![img]![Uploading 687d0831b9657155881587401c8f2985.jpg…]()
+
+
 
 
 
