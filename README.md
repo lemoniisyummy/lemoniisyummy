@@ -1,6 +1,5 @@
 <p align="center">˚₊‧꒰ა ☆ ໒꒱ ‧₊˚
- </p align="center"> ![image](https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/090a898f-e2ee-4d8f-9b70-42d5cd6d7af3)
-                                                              
+ <p align="center">![image](https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/e67e4d63-51b8-465b-93c6-70f7607fb093)
 
 <p align="center"> ───── ⋆⋅☆⋅⋆ ─────
 <p align="center">𝑨𝒔 𝒚𝒐𝒖 𝒌𝒏𝒐𝒘 𝒎𝒚 𝒏𝒂𝒎𝒆 𝒊𝒔 𝑳𝒆𝒎𝒐𝒏𝒊    
