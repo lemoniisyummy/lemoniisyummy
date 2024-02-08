@@ -1,7 +1,6 @@
 <p align="center">˚₊‧꒰ა ☆ ໒꒱ ‧₊˚
-<p align="center"> <img width="115" src=alt =![image](https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/e830b02e-998c-4f43-9347-90af06cf14c4)
+<p align="center"> <img width="115" src=alt =![image]![image](https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/dc0627f9-76a8-488e-9f9f-33add1305afd)
 
-<p align="center"> ───── ⋆⋅☆⋅⋆ ─────
 <p align="center">𝑨𝒔 𝒚𝒐𝒖 𝒌𝒏𝒐𝒘 𝒎𝒚 𝒏𝒂𝒎𝒆 𝒊𝒔 𝑳𝒆𝒎𝒐𝒏𝒊    
 <p align="center">𝐈 𝐚𝐦 𝐀𝐅𝐊 𝐚𝐥𝐦𝐨𝐬𝐭 𝐞𝐯𝐞𝐫𝐲𝐭𝐢𝐦𝐞 𝐬𝐨 𝐝𝐨𝐧'𝐭 𝐬𝐚𝐲 𝐭𝐡𝐚𝐭 𝐈 𝐢𝐠𝐧𝐨𝐫𝐞𝐝 𝐲𝐨𝐮 
 <p align="center">╰┈➤ 🟢- 𝙥𝙧𝙤𝙗 𝙤𝙣𝙡𝙞𝙣𝙚 𝙤𝙧 𝙧𝙤𝙡𝙚𝙥𝙡𝙖𝙮𝙞𝙣𝙜/𝙗𝙪𝙞𝙡𝙙 𝙗𝙖𝙩𝙩𝙡𝙚 (40% chance I will use this)
