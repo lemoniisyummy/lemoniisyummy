@@ -1,6 +1,6 @@
                                                               ˚₊‧꒰ა ☆ ໒꒱ ‧₊˚
-![image](https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/0ddabab1-fd60-49a3-96e1-c3bea50f2ab0)
-
+![image](https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/090a898f-e2ee-4d8f-9b70-42d5cd6d7af3)
+                                                              
 
                                                                ───── ⋆⋅☆⋅⋆ ─────
                                                       𝑨𝒔 𝒚𝒐𝒖 𝒌𝒏𝒐𝒘 𝒎𝒚 𝒏𝒂𝒎𝒆 𝒊𝒔 𝑳𝒆𝒎𝒐𝒏𝒊    
