@@ -19,7 +19,9 @@
                                                                
 <p align="center">The fandoms I am in are: Project sekai/genshin impact/trolls/cookie run kingdom/ total drama
 
-<p align="center">I love buying vitamin C candies I have ate 3 bottles of them 
+<p align="center">I love buying vitamin C candies I have ate 3 bottles of them
+
+<p align="center">I am not the type of the person that is serious 
 <p align="center">🌊✮ ⋆ 🦈｡ * ⋆｡
 <p align="center">Thats all for now！（I WILL ADD MORE DW HAHAHAHA)
                                                              
