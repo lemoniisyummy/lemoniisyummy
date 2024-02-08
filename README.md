@@ -1,12 +1,5 @@
 <p align="center">˚₊‧꒰ა ☆ ໒꒱ ‧₊˚
-<p align="center"> <img width="115" src=alt =![img]![Uploading 687d0831b9657155881587401c8f2985.jpg…]()
-
-
-
-
-
-
-
+<p align="center"> <img width="115" src=alt =![img]![free_to_use___venti_pixel_icon___psd_by_doosio_devbfnz]
 <p align="center"> ───── ⋆⋅☆⋅⋆ ─────
 <p align="center">𝑨𝒔 𝒚𝒐𝒖 𝒌𝒏𝒐𝒘 𝒎𝒚 𝒏𝒂𝒎𝒆 𝒊𝒔 𝑳𝒆𝒎𝒐𝒏𝒊    
 <p align="center">𝐈 𝐚𝐦 𝐀𝐅𝐊 𝐚𝐥𝐦𝐨𝐬𝐭 𝐞𝐯𝐞𝐫𝐲𝐭𝐢𝐦𝐞 𝐬𝐨 𝐝𝐨𝐧'𝐭 𝐬𝐚𝐲 𝐭𝐡𝐚𝐭 𝐈 𝐢𝐠𝐧𝐨𝐫𝐞𝐝 𝐲𝐨𝐮 
