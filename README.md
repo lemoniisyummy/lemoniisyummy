@@ -24,6 +24,9 @@
 <p align="center">I am not the type of the person that is serious 
 
 <p align="center">I will randomly leave if you dont see me online after 15 mins that means i am not coming back
+  
+<p align="center">I get confused easily 
+
 <p align="center">🌊✮ ⋆ 🦈｡ * ⋆｡
 <p align="center">Thats all for now！（I WILL ADD MORE DW HAHAHAHA)
                                                              
