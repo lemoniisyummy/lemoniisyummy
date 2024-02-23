@@ -1,7 +1,7 @@
 <p align="center">˚₊‧꒰ა ☆ ໒꒱ ‧₊˚
 
 <p align="center">𝑨𝒔 𝒚𝒐𝒖 𝒌𝒏𝒐𝒘 𝒎𝒚 𝒏𝒂𝒎𝒆 𝒊𝒔 𝑳𝒆𝒎𝒐𝒏𝒊    
-<p align="center">𝐈 𝐚𝐦 𝐀𝐅𝐊 𝐚𝐥𝐦𝐨𝐬𝐭 𝐞𝐯𝐞𝐫𝐲𝐭𝐢𝐦𝐞 𝐬𝐨 𝐝𝐨𝐧'𝐭 𝐬𝐚𝐲 𝐭𝐡𝐚𝐭 𝐈 𝐢𝐠𝐧𝐨𝐫𝐞𝐝 𝐲𝐨𝐮 
+<p align="center">𝐈 𝐚𝐦 𝐀𝐅𝐊 𝐚𝐥𝐦𝐨𝐬𝐭 𝐞𝐯𝐞𝐫𝐲𝐭𝐢𝐦𝐞 >.<
 <p align="center">╰┈➤ 🟢- 𝙥𝙧𝙤𝙗 𝙤𝙣𝙡𝙞𝙣𝙚 𝙤𝙧 𝙧𝙤𝙡𝙚𝙥𝙡𝙖𝙮𝙞𝙣𝙜/𝙗𝙪𝙞𝙡𝙙 𝙗𝙖𝙩𝙩𝙡𝙚 (40% chance I will use this)
 <p align="center">╰┈➤ ⛔- 𝘿𝙤𝙞𝙣𝙜 𝙤𝙩𝙝𝙚𝙧 𝙩𝙝𝙞𝙣𝙜𝙨 𝙤𝙧 𝙟𝙪𝙨𝙩 𝙗𝙪𝙨𝙮 :3    ˗ˏˋ ★ ˎˊ˗
 <p align="center">-ˋˏ✄┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈
@@ -17,7 +17,7 @@
                                                   
 <p align="center">Me is very like blue :3
                                                                
-<p align="center">The fandoms I am in are: Project sekai/genshin impact/trolls/cookie run kingdom/ total drama
+<p align="center">The fandoms I am in are: Project sekai/genshin impact/hazbin hotel/cookie run kingdom/ total drama
 
 <p align="center">I love buying vitamin C candies I have ate 3 bottles of them
 
@@ -25,7 +25,7 @@
 
 <p align="center">I will randomly leave if you dont see me online after 15 mins that means i am not coming back
   
-<p align="center">I get confused easily 
+<p align="center">I get confused easily UWU 
 
 <p align="center">🌊✮ ⋆ 🦈｡ * ⋆｡
 <p align="center">Thats all for now！（I WILL ADD MORE DW HAHAHAHA)
