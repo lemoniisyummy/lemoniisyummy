@@ -1,5 +1,6 @@
 <p align="center">˚₊‧꒰ა ☆ ໒꒱ ‧₊˚
-<p align="center">![image](https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/ed6a14b1-8597-49d7-9651-c8dd5ccfe51c)
+<p align="center">![image](https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/8a9f5e0d-0ea1-410d-9ed9-c8c40deaa0d8)
+
 
 <p align="center">𝑨𝒔 𝒚𝒐𝒖 𝒌𝒏𝒐𝒘 𝒎𝒚 𝒏𝒂𝒎𝒆 𝒊𝒔 𝑳𝒆𝒎𝒐𝒏𝒊    
 <p align="center">𝐈 𝐚𝐦 𝐀𝐅𝐊 𝐚𝐥𝐦𝐨𝐬𝐭 𝐞𝐯𝐞𝐫𝐲𝐭𝐢𝐦𝐞 >.<
