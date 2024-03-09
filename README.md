@@ -27,7 +27,7 @@
 
 <p align="center">I will randomly leave if you dont see me online after 15 mins that means i am not coming back
   
-<p align="center">I get confused easily UWU 
+<p align="center"> i need frwieds badly rn (if u wanna be my frien plz int >_<)
 
 <p align="center">🌊✮ ⋆ 🦈｡ * ⋆｡
 <p align="center">Thats all for now！（I WILL ADD MORE DW HAHAHAHA)
