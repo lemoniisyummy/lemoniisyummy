@@ -32,7 +32,7 @@
 <p align="center">🌊✮ ⋆ 🦈｡ * ⋆｡
 <p align="center">Thats all for now！（I WILL ADD MORE DW HAHAHAHA)
                                                              
-<p align="center">▬▬ι═══════ﺤ▬▬ι═══════ﺤ▬▬ι═══════ﺤ▬▬ι═══════ﺤ▬▬ι═══════ﺤ
+<p align="center">▬▬ι═══════ﺤ
 <p align="center">If you did read my github proflile Whisper me "🧸" if you want ^_^
 
 <p align="center">༺☆༻
