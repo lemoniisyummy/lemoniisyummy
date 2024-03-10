@@ -21,7 +21,7 @@
                                                   
 <p align="center">Me is very like blue :3
                                                                
-<p align="center">The fandoms I am in are: Project sekai/genshin impact/hazbin hotel/cookie run kingdom/ total drama/helluva boss/solarballs
+<p align="center">The fandoms I am in are: Project sekai/genshin impact/hazbin hotel/cookie run kingdom//helluva boss/solarballs
 
 <p align="center">I love buying vitamin C candies I have ate 3 bottles of them
 
