@@ -1,8 +1,9 @@
 <p align="center">˚₊‧꒰ა ☆ ໒꒱ ‧₊˚
 <p align="center">
-  <img width="430" src="![image](https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/b5fc7550-8b03-49a1-b594-7e78aff1cfcd)
-" alt = ![image]>
+<p align="center">
+  <img width="430" src="https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/0186c7eb-31ca-48a6-98a8-e366fbe5ac17" alt = ![image]>
 </p>
+
 <p align="center">(ty for chi to help me put this image up lol)
 <p align="center">𝑨𝒔 𝒚𝒐𝒖 𝒌𝒏𝒐𝒘 𝒎𝒚 𝒏𝒂𝒎𝒆 𝒊𝒔 𝑳𝒆𝒎𝒐𝒏𝒊    
 <p align="center">𝐈 𝐚𝐦 𝐀𝐅𝐊 𝐚𝐥𝐦𝐨𝐬𝐭 𝐞𝐯𝐞𝐫𝐲𝐭𝐢𝐦𝐞 >.<
