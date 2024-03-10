@@ -1,6 +1,7 @@
 <p align="center">˚₊‧꒰ა ☆ ໒꒱ ‧₊˚
 <p align="center">
-  <img width="430" src="https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/5c3fba39-af11-42ea-a9e7-a11f41e7d651" alt = ![image]>
+  <img width="430" src="![image](https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/b5fc7550-8b03-49a1-b594-7e78aff1cfcd)
+" alt = ![image]>
 </p>
 <p align="center">(ty for chi to help me put this image up lol)
 <p align="center">𝑨𝒔 𝒚𝒐𝒖 𝒌𝒏𝒐𝒘 𝒎𝒚 𝒏𝒂𝒎𝒆 𝒊𝒔 𝑳𝒆𝒎𝒐𝒏𝒊    
