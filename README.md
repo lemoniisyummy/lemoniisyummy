@@ -38,7 +38,5 @@
 <p align="center">If you did read my github proflile Whisper me "🧸" if you want ^_^
 
 <p align="center">༺☆༻
-
-<p align="center">MY NEPTUNE OC AAA
 <img width="430" src="https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/27035aa3-fecb-4ae1-9726-c353856bf175" alt = ![image]>
 </p>
