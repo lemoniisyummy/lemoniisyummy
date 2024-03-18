@@ -16,7 +16,8 @@
 </p>                                                               
 <p align="center">˗ˏˋ ꒰ ♡ ꒱ ˎˊ˗
 <p align="center">
-  <img width="430" src="https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/18bd3726-e10e-4f97-ab5d-66e81ebb27d7" alt = ![image]>
+<p align="center">
+  <img width="430" src="https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/54a602f2-b2c8-41b5-b0b8-b1eaa313470c" alt = ![image]>
 </p>
 
  <p align="center">neptune is so silly
