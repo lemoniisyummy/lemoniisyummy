@@ -21,10 +21,8 @@
 </p>
 
  <p align="center">neptune is so silly
- ˗ˏˋ ★ ˎˊ˗
-
-<p align="center">▬▬ι═══════ﺤ
-<p align="center">If you did read my github proflile Whisper me "🧸" if you want ^_^
-
-
-
+<p align="center"> ˗ˏˋ ★ ˎˊ˗
+<p align="center"> neptune's cousin!?!? (theyre matching)
+<p align="center">
+  <img width="430" src="https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/f8545cf4-941b-4f8b-b7b8-7b9d867f5c89 alt = ![image]>
+</p>
