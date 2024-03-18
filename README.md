@@ -26,3 +26,7 @@
 <p align="center">
   <img width="430" src="https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/0659260b-4284-4d00-8a4e-16177478980f" alt = ![image]>
 </p>
+<p align="center">
+  <img width="430" src="https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/0e69f52d-69a3-4e09-93bf-26d39fadad6d
+" alt = ![image]>
+</p>
