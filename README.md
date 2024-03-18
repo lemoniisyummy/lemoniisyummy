@@ -15,7 +15,10 @@
   <img width="430" src="https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/de376577-237a-4f0b-afce-a251eee7b3a6" alt = ![image]>
 </p>                                                               
 <p align="center">˗ˏˋ ꒰ ♡ ꒱ ˎˊ˗
-<p align="center"><img width="430" src="![image](https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/0c74c6e9-1069-4f8c-b6c2-506c46e7947f)" alt = ![image]>
+<p align="center">
+  <img width="430" src="https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/18bd3726-e10e-4f97-ab5d-66e81ebb27d7" alt = ![image]>
+</p>
+
  <p align="center">neptune is so silly
  ˗ˏˋ ★ ˎˊ˗
 
