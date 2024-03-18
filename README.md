@@ -1,5 +1,5 @@
 <img width="430" src="![c459fe396fef0878ed7f40019b17f8e2](https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/02e14bc3-856f-49aa-ba30-810e9fa42286)
-" alt = ![image]>
+" alt = ![gif]>
 </p>
 <p align="center">˚₊‧꒰ა ☆ ໒꒱ ‧₊˚
 <p align="center">
