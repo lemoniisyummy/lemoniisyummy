@@ -15,28 +15,14 @@
   <img width="430" src="https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/de376577-237a-4f0b-afce-a251eee7b3a6" alt = ![image]>
 </p>                                                               
 <p align="center">˗ˏˋ ꒰ ♡ ꒱ ˎˊ˗
-<p align="center">Facts about me toohoo >_<
-                                                             
-<p align="center">I like lemons thats why my name is Lemoni (that is very obv)
-                                                  
-<p align="center">Me is very like blue :3
-                                                               
-<p align="center">The fandoms I am in are: Project sekai/genshin impact/hazbin hotel/cookie run kingdom//helluva boss/solarballs
+<img width="430" src="![pony-town-uranus's cousin💎-stand-blinking-padded-4x](https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/90742386-6d34-473c-9a94-654d0691abb2)
+" alt = ![image]>
+</p>
+ <p align="center">neptune is so silly
+ ˗ˏˋ ★ ˎˊ˗
 
-<p align="center">I love buying vitamin C candies I have ate 3 bottles of them
-
-<p align="center">I am not the type of the person that is serious 
-
-<p align="center">I will randomly leave if you dont see me online after 15 mins that means i am not coming back
-  
-<p align="center"> i need frwieds badly rn (if u wanna be my frien plz int >_<)
-
-<p align="center">🌊✮ ⋆ 🦈｡ * ⋆｡
-<p align="center">Thats all for now！（I WILL ADD MORE DW HAHAHAHA)
-                                                             
 <p align="center">▬▬ι═══════ﺤ
 <p align="center">If you did read my github proflile Whisper me "🧸" if you want ^_^
 
-<p align="center">neptune is so silly 
-<img width="430" src="https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/27035aa3-fecb-4ae1-9726-c353856bf175" alt = ![image]>
-</p>
+
+
