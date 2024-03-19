@@ -30,5 +30,9 @@
 <p align="center"><img width="430" src="https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/d8d4cd7b-9dbc-4413-b742-1144a3af9976" alt = ![image]>
 </p>
 <p align="center">.𖥔 ݁ 🪐˖
-<p align="center">I will make some uranus and neptune drawings soon
+<p align="center">some uranus and neptune drawings :33
 <p align="center">𝄞
+<p align="center">
+  <img width="430" src="![image](https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/970ae0a2-e29a-499a-97f0-35bae87091b9)
+" alt = ![image]>
+</p>
