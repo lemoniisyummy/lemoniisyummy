@@ -1,5 +1,5 @@
 <p align="center">
-  <img width="430" src="https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/0003ced4-544b-4e2d-8e5f-6782296e36b0" alt = ![image]>
+  <img width="430" src="https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/7b01d19b-89e8-4001-8c38-272d24b2208e" alt = ![image]>
 </p>
 <p align="center">
 <p align="center">
