@@ -7,8 +7,8 @@
 <p align="center">𝐈 𝐚𝐦 𝐀𝐅𝐊 𝐚𝐥𝐦𝐨𝐬𝐭 𝐞𝐯𝐞𝐫𝐲𝐭𝐢𝐦𝐞 >.<
 <p align="center">╰┈➤ 🟢- 𝙤𝙣𝙡𝙞𝙣𝙚 𝙤𝙧 𝙧𝙤𝙡𝙚𝙥𝙡𝙖𝙮𝙞𝙣𝙜/𝙗𝙪𝙞𝙡𝙙 𝙗𝙖𝙩𝙩𝙡𝙚 (40% chance I will use this)
 <p align="center">╰┈➤ ⛔- 𝘿𝙤𝙞𝙣𝙜 𝙤𝙩𝙝𝙚𝙧 𝙩𝙝𝙞𝙣𝙜𝙨 𝙤𝙧 𝙟𝙪𝙨𝙩 𝙗𝙪𝙨𝙮 :3    ˗ˏˋ ★ ˎˊ˗
- <p align="center">
-  <img width="430" src="https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/b9a6196c-96ed-4cb4-9c8a-d1a28e8fe1a7 alt = ![image]>
+<p align="center">
+  <img width="430" src="https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/144091b3-d9a6-4879-aebc-d1e793421b2e" alt = ![image]>
 </p>
 <p align="center">𝑫𝑵𝑪 ( 𝑫𝑶 𝑵𝑶𝑻 𝑪𝑶𝑷𝒀) 𝑴𝒚 𝒔𝒌𝒊𝒏𝒔 𝒊𝒏 𝒑𝒐𝒏𝒚𝒕𝒐𝒘𝒏! 
 <p align="center">☆★☆
