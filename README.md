@@ -20,7 +20,9 @@
  <p align="center">
   <img width="430" src="https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/de376577-237a-4f0b-afce-a251eee7b3a6" alt = ![image]>
 </p>                                                               
-<p align="center">˗ˏˋ ꒰ ♡ ꒱ ˎˊ˗
+<p align="center">
+  <img width="430" src="https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/3dec5cf6-3c7b-4ae8-9be5-353655707920" alt = [image]>
+</p>
 <p align="center">
 <p align="center">
 <p align="center">
