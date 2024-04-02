@@ -43,9 +43,9 @@
 </p>
 <p align="center">some uranus and neptune drawings :33
 <p align="center">
-  <img width="430" src="https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/3a0721f6-a912-43d2-b6f0-5de6a0107f0a" alt = ![image]>
-</p>
-<p align="center">
 <p align="center">
   <img width="430" src="https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/d79272f4-22c8-4643-9dfc-f78ecfb1f115" alt = ![image]>
+</p>
+<p align="center">
+  <img width="430" src="https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/3a0721f6-a912-43d2-b6f0-5de6a0107f0a" alt = ![image]>
 </p>
