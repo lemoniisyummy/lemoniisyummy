@@ -38,7 +38,9 @@
 <p align="center">── ⋆⋅☆⋅⋆ ──
 <p align="center"><img width="430" src="https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/d8d4cd7b-9dbc-4413-b742-1144a3af9976" alt = ![image]>
 </p>
-<p align="center">.𖥔 ݁ 🪐˖
+<p align="center">
+  <img width="430" src="https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/9f91a73e-c58c-41ba-900b-b64d79e2d01d" alt = ![image]>
+</p>
 <p align="center">some uranus and neptune drawings :33
 <p align="center">𝄞
 <p align="center">
