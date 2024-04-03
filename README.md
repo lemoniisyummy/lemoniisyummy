@@ -39,7 +39,7 @@
 <p align="center"><img width="430" src="https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/d8d4cd7b-9dbc-4413-b742-1144a3af9976" alt = ![image]>
 </p>
 <p align="center">
-  <img width="430" src="https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/9f91a73e-c58c-41ba-900b-b64d79e2d01d" alt = ![image]>
+  <img width="430" src="https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/3a0721f6-a912-43d2-b6f0-5de6a0107f0a" alt = ![image]>
 </p>
 <p align="center">some uranus and neptune drawings :33
 <p align="center">
@@ -47,5 +47,5 @@
   <img width="430" src="https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/d79272f4-22c8-4643-9dfc-f78ecfb1f115" alt = ![image]>
 </p>
 <p align="center">
-  <img width="430" src="https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/3a0721f6-a912-43d2-b6f0-5de6a0107f0a" alt = ![image]>
+  <img width="430" src="https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/7b01d19b-89e8-4001-8c38-272d24b2208e" alt = ![image]>
 </p>
