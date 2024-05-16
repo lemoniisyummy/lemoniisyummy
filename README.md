@@ -23,7 +23,7 @@
   <img width="430" src="https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/82d31b38-1cb6-41d1-a54b-9217242dcdeb" alt = [image]>
 </p>
 <p align="center">
-  <img width="430" src="https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/c215a04f-84ec-4c2d-bbfd-53a26125730d" alt = ![image]>
+  <img width="430" src="https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/4a840c8d-a439-4377-a15e-e21eff06445d" alt = ![image]>
 </p>
  <p align="center">neptune is so silly
 <p align="center">
