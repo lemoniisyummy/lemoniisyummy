@@ -31,9 +31,8 @@
 </p>
 <p align="center"> neptune's cousin!?!? (theyre matching)
 <p align="center">
-  <img width="430" src="https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/ff195ec5-0806-4135-afdb-27d8851e569f" alt = ![image]>
+  <img width="430" src="https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/0ac9505b-4db6-437e-bb87-a26f35a36412" alt = ![image]>
 </p>
-<p align="center">some flop rated uranus a 6.5 what a local ;-;
 <p align="center">── ⋆⋅☆⋅⋆ ──
 <p align="center"><img width="430" src="https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/d8d4cd7b-9dbc-4413-b742-1144a3af9976" alt = ![image]>
 </p>
