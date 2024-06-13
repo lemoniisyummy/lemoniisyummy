@@ -23,7 +23,7 @@
   <img width="430" src="https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/82d31b38-1cb6-41d1-a54b-9217242dcdeb" alt = [image]>
 </p>
 <p align="center">
-  <img width="430" src="https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/4a840c8d-a439-4377-a15e-e21eff06445d" alt = ![image]>
+  <img width="430" src="https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/75aec025-c6bd-485e-aa09-db2594532ac8" alt = ![image]>
 </p>
  <p align="center">neptune is so silly
 <p align="center">
@@ -31,7 +31,7 @@
 </p>
 <p align="center"> neptune's cousin!?!? (theyre matching)
 <p align="center">
-  <img width="430" src="https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/0ac9505b-4db6-437e-bb87-a26f35a36412" alt = ![image]>
+  <img width="430" src="https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/066c7af8-4196-4e4a-b96c-ad31c385be7a)" alt = ![image]>
 </p>
 <p align="center">── ⋆⋅☆⋅⋆ ──
 <p align="center"><img width="430" src="https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/d8d4cd7b-9dbc-4413-b742-1144a3af9976" alt = ![image]>
