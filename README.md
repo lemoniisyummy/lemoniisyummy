@@ -5,7 +5,7 @@
   <img width="430" src="https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/4cb9f1a0-31c1-41ca-aef2-b1cc0fd79875" alt = ![image]>
 </p>  
 <p align="center">Almost afk all the time! (Whisper to int)
-<p align="center">╰┈➤ 🟢- 𝙤𝙣𝙡𝙞𝙣𝙚 𝙤𝙧 𝙧𝙤𝙡𝙚𝙥𝙡𝙖𝙮𝙞𝙣𝙜/𝙗𝙪𝙞𝙡𝙙 𝙗𝙖𝙩𝙩𝙡𝙚 (40% chance I will use this)
+<p align="center">╰┈➤ 🟢- 𝙤𝙣𝙡𝙞𝙣𝙚 𝙤𝙧 𝙧𝙤𝙡𝙚𝙥𝙡𝙖𝙮𝙞𝙣𝙜/𝙗𝙪𝙞𝙡𝙙 𝙗𝙖𝙩𝙩𝙡𝙚 (i love build battles)
 <p align="center">╰┈➤ ⛔- 𝘿𝙤𝙞𝙣𝙜 𝙤𝙩𝙝𝙚𝙧 𝙩𝙝𝙞𝙣𝙜𝙨 𝙤𝙧 𝙟𝙪𝙨𝙩 𝙗𝙪𝙨𝙮 :3    ˗ˏˋ ★ ˎˊ˗
 <p align="center">
   <img width="430" src="https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/144091b3-d9a6-4879-aebc-d1e793421b2e" alt = ![image]>
