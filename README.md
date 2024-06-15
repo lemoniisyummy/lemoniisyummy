@@ -2,8 +2,7 @@
   <img width="430" src="https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/7b01d19b-89e8-4001-8c38-272d24b2208e" alt = ![image]>
 </p>
 <p align="center">
-<p align="center">
-  <img width="430" src="https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/0186c7eb-31ca-48a6-98a8-e366fbe5ac17" alt = ![image]>
+  <img width="430" src="https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/4cb9f1a0-31c1-41ca-aef2-b1cc0fd79875" alt = ![image]>
 </p>  
 <p align="center">Almost afk all the time! (Whisper to int)
 <p align="center">╰┈➤ 🟢- 𝙤𝙣𝙡𝙞𝙣𝙚 𝙤𝙧 𝙧𝙤𝙡𝙚𝙥𝙡𝙖𝙮𝙞𝙣𝙜/𝙗𝙪𝙞𝙡𝙙 𝙗𝙖𝙩𝙩𝙡𝙚 (40% chance I will use this)
