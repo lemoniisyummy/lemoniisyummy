@@ -21,16 +21,6 @@
 <p align="center">
   <img width="430" src="https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/82d31b38-1cb6-41d1-a54b-9217242dcdeb" alt = [image]>
 </p>
-<p align="center">
-
- <p align="center">neptune is so silly
-<p align="center">
-  <img width="430" src="https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/8f8837f1-8d38-4b44-aabb-1ab41d6e7de2" alt = ![image]>
-</p>
-<p align="center"> neptune's cousin!?!? (theyre matching)
-<p align="center">
-  <img width="430" src="https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/066c7af8-4196-4e4a-b96c-ad31c385be7a)" alt = ![image]>
-</p>
 <p align="center">── ⋆⋅☆⋅⋆ ──
 <p align="center"><img width="430" src="https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/d8d4cd7b-9dbc-4413-b742-1144a3af9976" alt = ![image]>
 </p>
