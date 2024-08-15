@@ -11,7 +11,7 @@
   <img width="430" src="https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/144091b3-d9a6-4879-aebc-d1e793421b2e" alt = ![image]>
 </p>
 <p align="center">𝑫𝑵𝑪 ( 𝑫𝑶 𝑵𝑶𝑻 𝑪𝑶𝑷𝒀) 𝑴𝒚 𝒔𝒌𝒊𝒏𝒔 𝒊𝒏 𝒑𝒐𝒏𝒚𝒕𝒐𝒘𝒏! 
-<p align="center">Dont take inspo from my ponies without permissions! (you can ask if you want to take some inspo, i wont bite!)
+<p align="center">Dont take inspo from my ponies without permissions
 <p align="center">
   <img width="430" src="https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/0003ced4-544b-4e2d-8e5f-6782296e36b0" alt = ![image]>
 </p>
@@ -22,8 +22,7 @@
   <img width="430" src="https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/82d31b38-1cb6-41d1-a54b-9217242dcdeb" alt = [image]>
 </p>
 <p align="center">
-  <img width="430" src="https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/03940b80-8945-45c8-bac4-d61b99553dfd" alt = ![image]>
-</p>
+
  <p align="center">neptune is so silly
 <p align="center">
   <img width="430" src="https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/8f8837f1-8d38-4b44-aabb-1ab41d6e7de2" alt = ![image]>
