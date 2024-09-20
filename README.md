@@ -1,8 +1,7 @@
 <p align="center">
   <img width="430" src="https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/7b01d19b-89e8-4001-8c38-272d24b2208e" alt = ![image]>
-</p>
-<p align="center">
-  <img width="430" src="https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/4cb9f1a0-31c1-41ca-aef2-b1cc0fd79875" alt = ![image]>
+</p>  
+<p align="center"> <img width="430" src="https://i.pinimg.com/originals/b2/02/51/b2025173f579ab2cdaeed0fa18c8a48e.gif" alt = ![image]>
 </p>  
 <p align="center">Almost afk all the time! (Whisper to int)
 <p align="center">╰┈➤ 🟢- 𝙤𝙣𝙡𝙞𝙣𝙚 𝙤𝙧 𝙧𝙤𝙡𝙚𝙥𝙡𝙖𝙮𝙞𝙣𝙜/𝙗𝙪𝙞𝙡𝙙 𝙗𝙖𝙩𝙩𝙡𝙚 (i love build battles)
