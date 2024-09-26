@@ -13,10 +13,4 @@
 <p align="center">Dont take inspo from my ponies without permissions
 <p align="center">
   <img width="430" src="https://64.media.tumblr.com/8e9b4dac14bf13907bc33a955da6921e/9e513f9d167de8f5-3f/s1280x1920/6bc21c670aedae2bf6b4cd55a88c2fa986af5dc6.gifv" alt = ![image]>
-</p>     
-<p align="center">
-  <img width="430" src="https://i.pinimg.com/originals/7a/f4/5d/7af45dfef8bc6627b2ef492fbdf0d446.gif" alt = ![image]>
-</p>
-<p align="center">
-  <img width="430" src="https://github.com/lemoniisyummy/lemoniisyummy/assets/159007894/7b01d19b-89e8-4001-8c38-272d24b2208e" alt = ![image]>
 </p>
