@@ -1,4 +1,4 @@
- <p align="center"> <img width="430" src="https://files.catbox.moe/kkl53j.png" alt = ![image]>
+ <p align="center"> <img width="530" src="https://files.catbox.moe/kkl53j.png" alt = ![image]>
 <p align="center"> <img width="430" src="https://i.pinimg.com/originals/b2/02/51/b2025173f579ab2cdaeed0fa18c8a48e.gif" alt = ![image]>
 </p>  
 <p align="center">Almost afk all the time! (Whisper to int)
