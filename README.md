@@ -9,7 +9,8 @@
 </p>
 <p align="center">𝑫𝑵𝑪 ( 𝑫𝑶 𝑵𝑶𝑻 𝑪𝑶𝑷𝒀) 𝑴𝒚 𝒔𝒌𝒊𝒏𝒔 𝒊𝒏 𝒑𝒐𝒏𝒚𝒕𝒐𝒘𝒏! 
 <p align="center">Dont take inspo from my ponies without permissions
-<p align="center">
-  <img width="130" src="https://files.catbox.moe/9s3gzh" alt = ![image]></p>  <p align="center"><img width="130" src="https://files.catbox.moe/fsimnr.gif" alt = ![image]></p>  <p align="center"><img width="130" src="https://files.catbox.moe/c64e5t.gifv" alt = ![image]></p> 
+<p align="center"><img width="130" src="https://files.catbox.moe/9s3gzh" alt = ![image]></p>  <p align="center"><img width="130" src="https://files.catbox.moe/9s3gzh" alt = ![image]></p>  
+
+  
 
 <p align="center"> <img width="830" src="https://files.catbox.moe/n79ve8.png" alt = ![image]>
