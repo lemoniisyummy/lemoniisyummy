@@ -5,7 +5,7 @@
 <p align="center">╰┈➤ 🟢- 𝙤𝙣𝙡𝙞𝙣𝙚 𝙤𝙧 𝙧𝙤𝙡𝙚𝙥𝙡𝙖𝙮𝙞𝙣𝙜/𝙗𝙪𝙞𝙡𝙙 𝙗𝙖𝙩𝙩𝙡𝙚 (i love build battles)
 <p align="center">╰┈➤ ⛔- 𝘿𝙤𝙞𝙣𝙜 𝙤𝙩𝙝𝙚𝙧 𝙩𝙝𝙞𝙣𝙜𝙨 𝙤𝙧 𝙟𝙪𝙨𝙩 𝙗𝙪𝙨𝙮 ˗ˏˋ ★ ˎˊ˗
 <p align="center">
-  <img width="430" src="https://files.catbox.moe/vi0lgy.gif" alt = ![image]>
+  <img width="430" src="https://files.catbox.moe/2bzd4m.gif" alt = ![image]>
 </p>
 <p align="center">𝑫𝑵𝑪 ( 𝑫𝑶 𝑵𝑶𝑻 𝑪𝑶𝑷𝒀) 𝑴𝒚 𝒔𝒌𝒊𝒏𝒔 𝒊𝒏 𝒑𝒐𝒏𝒚𝒕𝒐𝒘𝒏! 
 <p align="center">Dont take inspo from my ponies without permissions
