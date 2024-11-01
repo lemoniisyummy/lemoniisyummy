@@ -8,5 +8,5 @@
   <img width="430" src="https://files.catbox.moe/2bzd4m.gif" alt = ![image]>
 </p>
 <p align="center"> DNC MY SKINS !!!
-<p align="center"> <img width="80" src="https://files.catbox.moe/1dkrdl.gif" alt = ![image]> <img width="80" src="https://files.catbox.moe/c64e5t.gif" alt = ![image]>
+<p align="center"> <img width="80" src="https://files.catbox.moe/1dkrdl.gif" alt = ![image]> <img width="80" src="https://files.catbox.moe/c64e5t.gifv" alt = ![image]>
 <p align="center"> <img width="830" src="https://files.catbox.moe/n79ve8.png" alt = ![image]>
