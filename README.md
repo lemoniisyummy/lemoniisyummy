@@ -1,5 +1,6 @@
  <p align="center"> <img width="730" src="https://files.catbox.moe/kkl53j.png" alt = ![image]>
-<p align="center"> <img width="430" src="https://i.pinimg.com/originals/b2/02/51/b2025173f579ab2cdaeed0fa18c8a48e.gif" alt = ![image]>
+ <p align="center"> <img width="730" src="![image](https://github.com/user-attachments/assets/655d65bc-7030-44c3-9b8a-01e8a48b7dfc)
+" alt = ![image]>
 </p>  
 <p align="center">Almost afk all the time! (Whisper to int)
 <p align="center">╰┈➤ 🟢- 𝙤𝙣𝙡𝙞𝙣𝙚 𝙤𝙧 𝙧𝙤𝙡𝙚𝙥𝙡𝙖𝙮𝙞𝙣𝙜/𝙗𝙪𝙞𝙡𝙙 𝙗𝙖𝙩𝙩𝙡𝙚 (i love build battles)
