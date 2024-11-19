@@ -1,5 +1,5 @@
+![counter](https://[YOUR_ENDPOINT].m.pipedream.net)
  <p align="center"> <img width="830" src="https://files.catbox.moe/kkl53j.png" alt = ![image]>
-  ![counter](https://[YOUR_ENDPOINT].m.pipedream.net)
  <p align="center"> <img width="630" src="https://github.com/user-attachments/assets/655d65bc-7030-44c3-9b8a-01e8a48b7dfc" alt = ![image]>
 </p>  
 <p align="center">Almost afk all the time! (Whisper to int)
