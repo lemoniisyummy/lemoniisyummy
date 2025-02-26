@@ -11,4 +11,4 @@
 <p align="center"> DNC MY SKINS !!!
 <p align="center"> <img width="80" src="https://files.catbox.moe/1dkrdl.gif" alt = ![image]> <img width="80" src="https://files.catbox.moe/ld2td0.png" alt <p align="center"> <img width="80" src="https://github.com/user-attachments/assets/017d2ea6-aba8-40fd-999e-b9ea698e085b" alt
 
- <p align="center"> <img width="100" src="https://github.com/user-attachments/assets/e34d0879-4658-4773-8325-c9557ad95115" alt = ![image]>
+ <p align="center"> <img width="400" src="https://github.com/user-attachments/assets/e34d0879-4658-4773-8325-c9557ad95115" alt = ![image]>
